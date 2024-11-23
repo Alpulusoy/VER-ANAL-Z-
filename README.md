@@ -1,0 +1,2 @@
+# VER-ANAL-Z-
+VERİ ANALİZİ ÇALIŞMASI
